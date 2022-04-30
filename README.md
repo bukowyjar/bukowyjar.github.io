@@ -1,2 +1,2 @@
 # bukowyjar.github.io
-**Gospodarstwo Rolno-Agroturystyczne "Bukowy Jar"**
+**Gospodarstwo Rolno-Agroturystyczne " Bukowy Jar "**
